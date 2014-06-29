@@ -2,4 +2,4 @@
 title: About Me
 ---
 
-THIS IS NOW DEFAULTS. ALL YOUR DEFAULTS ARE BELONGS TO ME.
+I am anonymous.

@@ -2,4 +2,4 @@
 title: Contact
 ---
 
-THIS IS NOW DEFAULTS. ALL YOUR DEFAULTS ARE BELONGS TO ME.
+I live deep under the ocean with extremophiles. I am uncontactable.
